@@ -17,7 +17,7 @@ This deal is **perfect for beginners, bloggers, small businesses**, or anyone la
 
 I shared the full method and coupon link in this detailed Reddit post:
 
-👉 [Working Bluehost Coupon – Reddit Guide (July 2025)](https://www.reddit.com/r/Bluehost_/comments/1l8pnnr/where_can_i_find_verified_bluehost_coupon_codes/)
+👉 [Working Bluehost Coupon – Reddit Guide (July 2025)](https://www.reddit.com/r/Namecheck/comments/1mo00eo/thinking_of_bluehost_share_your_review_and/)
 
 It includes screenshots, exact steps, and tips on which plan to choose.
 
